@@ -1,7 +1,7 @@
 landmark 
-simon 
+mercy  
 dominion 
 ayo
-obi
+haniel
 manger 
 datti 
